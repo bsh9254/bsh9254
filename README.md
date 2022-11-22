@@ -30,6 +30,10 @@ Kyunghee Univ. Biomedical Engineering/Software Engineering
 
 🏆 AWARD
 
+2022
+
+이노베이션 캠프 T.S 부문, 상생 부문 수상
+
 2020
 
 경희대학교 Start-UP the Dream 2nd
